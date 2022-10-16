@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @OperatorRosmontis(Boxuan Zhang)
+- 👀 I’m interested in program,read and so on.
+- 🌱 I’m currently learning python,c++,java and so on.
+- 💞️ I’m looking to collaborate on program.
+- 📫 How to reach me? PLease call at capture1969@hotmail.com or zhangboxuan@xtcteam.onmicrosoft.
+- Thanks for you looking my profile.
